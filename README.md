@@ -1,0 +1,2 @@
+# premium-cigar-box-shrine-001-cigar-box-shrine-assemblage
+You've collected cigar boxes and found beautiful objects, but staring at scattered supplies and no clear creative direction kills your momentum. The Cigar Box Shrine &amp; Assemblage Art Craft Lab solves this by giving you a complete digital workspace to plan, organize, and execute shrine and assemblage art projects from concept to finished piece.  Thi
